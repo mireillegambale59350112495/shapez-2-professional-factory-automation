@@ -16,7 +16,7 @@
 
 <div align="center">
 
-[![Download shapez 2 Professional Factory Automation](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://tinyurl.com/shapez-2-professional-factory)
+[![Download shapez 2 Professional Factory Automation](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://share.google/RTTlApZHsM7wtTNQn)
 
 </div>
 
@@ -72,7 +72,7 @@
 
 <div align="center">
 
-[![Download shapez 2 Professional Factory Automation](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://tinyurl.com/shapez-2-professional-factory)
+[![Download shapez 2 Professional Factory Automation](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://share.google/RTTlApZHsM7wtTNQn)
 
 </div>
 
@@ -175,7 +175,7 @@ Build unlimited automated factories for free. **shapez 2 – Professional Factor
 
 <div align="center">
 
-[![Download shapez 2 Professional Factory Automation](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://tinyurl.com/shapez-2-professional-factory)
+[![Download shapez 2 Professional Factory Automation](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://share.google/RTTlApZHsM7wtTNQn)
 
 **Version 2.1.0** — Free shapez 2 full version. May 2026 update. Zero cost. No payment.
 
